@@ -1,0 +1,2 @@
+# Andri-resolusi
+Resolusi kedepan
